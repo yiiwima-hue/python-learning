@@ -1,1 +1,1 @@
-
+i am a senior secondary school student and i am interesting in code.what a pity is that i don not have enough time to bury myself in code.could you please give me some practical suggestions.i am a beginner who did not know any more.additionally,i am not good at english .you can switch some word into chinese
